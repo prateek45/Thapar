@@ -1,1 +1,1 @@
-# Thapar Institute of Technology, Patiala 
+# Thapar Institute of Technology,Patiala 
